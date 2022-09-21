@@ -1,0 +1,1 @@
+Os enunciados estão na plataforma https://www.beecrowd.com.br/, o índice do problema está no pdf
